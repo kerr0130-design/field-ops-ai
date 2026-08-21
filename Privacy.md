@@ -1,4 +1,4 @@
-# FieldOps AI Privacy Policy
+# FieldOps AI Privacy Policy_
 
 **Effective Date:** August 21, 2026
 **Last Updated:** August 21, 2026
