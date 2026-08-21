@@ -195,7 +195,7 @@ Certain information may be retained when required by law, necessary for security
 
 For assistance with a data or account deletion request, contact:
 
-**[kkerr0130@oulook.com](mailto:kkerr0130@oulook.com)**
+**[kkerr0130@oulook.com](mailto:kkerr0130@outlook.com)**
 
 ## 13. Children's Privacy
 
